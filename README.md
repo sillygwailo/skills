@@ -17,4 +17,5 @@ I very obviously do not know how to do the following, despite multiple attempts 
 
 * Dancing
 * Physical intimacy
+* Drive a motor vehicle
 * Puzzles
